@@ -1,1 +1,1 @@
-nothing last forever
+nothing lasts forever
